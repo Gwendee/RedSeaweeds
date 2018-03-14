@@ -1,1 +1,3 @@
 # RedSeaweeds
+
+Hi Im Gwendee!
